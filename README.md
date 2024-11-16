@@ -4,7 +4,7 @@
 - **Creator**: Vince Gilligan  
 - **Genres**: Crime, Drama, Thriller  
 - **Seasons**: 5  
-- **Episodes**: 62  
+- **Episodes**: 62
 - **Original Run**: January 20, 2008 – September 29, 2013  
 
 ## Main Cast
